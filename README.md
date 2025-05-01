@@ -80,7 +80,6 @@ no dni just no kids
 )"/> </p>
 
 
-
 <p align="center">
   <img src="https://gifcity.carrd.co/assets/images/gallery49/abc5acb3.png?v=e3c0bc0f" />
 </p>
@@ -89,3 +88,8 @@ no dni just no kids
   <img src="https://i.postimg.cc/CK4xHk36/STAM.png"/> </p>
 
 ![s1](https://supplies.ju.mp/assets/images/gallery01/f3384d1e_original.png?v=1c1ba870)![s2](https://y2k.neocities.org/stamps2/_stamp__plain_doll_01_by_cute_quts-da7y04e.png)
+
+
+<p align="center">
+<sub>  you can sit next to me, hide etc i don't mind ! might just not talk bc i find PT chat annoying  </sub>
+</p>
