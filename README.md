@@ -91,5 +91,5 @@ no dni just no kids ! i just block/hide :)
 
 
 <p align="center">
-<sub>  you can sit next to me, hide etc i don't mind ! might just not talk bc i find PT chat annoying  </sub>
+<sub>  you can sit next to me, hide etc i don't mind ! might just not talk immediately bc im kind of blind n never see whispers !!!  </sub>
 </p>
