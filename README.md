@@ -59,10 +59,14 @@
 </p>
 
 <p align="center">
-no dni just no kids ! i just block/hide :)
+no dni just no kids (-18) ! i just block/hide if i have to. :)
 </p>
 <p align="center">
-<sub> I AM A KIND PERSON BUT I FIND IT CATHARTIC AND FUN TO SPEND MY TIME ONLINE EITHER LURKING QUIETLY, MAKING FRIENDS OR CAUSING AN UNCOMFORTABLE ATMOSPHERE. IF YOU GET MAD AT ME WHEN I DO THIS, I OWN YOU PSYCHOLOGICALLY IN MY MIND HAREM. NOTHING CAN CHANGE THAT. I LOVE YOU. </sub>
+<sub>  I FIND IT FUN TO SPEND MY TIME ONLINE EITHER GOING THROUGH PROFILES & LURKING, MAKING FRIENDS OR SOMETIMES CAUSING AN UNCOMFORTABLE ATMOSPHERE. IT'S IN GOOD FUN AND NOT ILL-INTENTIONED. IF YOU GET MAD AT ME WHEN I DO THIS, I OWN YOU PSYCHOLOGICALLY IN MY MIND HAREM. NOTHING CAN CHANGE THAT. I LOVE YOU. </sub>
+</p>
+
+<p align="center">
+<sub>  no abt. im working on a strawpage :( </sub>
 </p>
 
 <p align="center">
@@ -91,5 +95,5 @@ no dni just no kids ! i just block/hide :)
 
 
 <p align="center">
-<sub>  you can sit next to me, hide etc i don't mind ! might just not talk immediately bc im kind of blind n never see whispers !!!  </sub>
+<sub>  you can sit next to me, hide etc i don't mind ! might just not talk immediately bc im kind of blind n never see whispers !!!   </sub>
 </p>
