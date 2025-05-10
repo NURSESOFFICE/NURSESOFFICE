@@ -31,7 +31,7 @@
 
 
 <p align="center">
-  <img src="https://m.media-amazon.com/images/I/517VJHRImLL._AC_SY450_.jpg" />
+  <img src="https://i.postimg.cc/WbVNG3BW/EUm1z-Yk-U4-AENl0u.jpg" />
 </p>
 
 <p align="center">
@@ -70,7 +70,7 @@ no dni just no kids (-18) ! i just block/hide if i have to. :)
 </p>
 
 <p align="center">
-  <img src="https://img1.picmix.com/output/stamp/normal/9/8/8/3/1793889_ebd65.png" />
+  <img src="https://i.postimg.cc/4NRdWw91/calnursetransp.png" />
 </p>
 
 <p align="center">
