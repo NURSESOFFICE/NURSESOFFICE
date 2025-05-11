@@ -64,7 +64,9 @@ no dni just no kids (-18) ! i just block/hide if i have to. :)
 </p>
 
 <p align="center">
-<sub>  no abt. im working on a strawpage :( </sub>
+<sub>  
+<a href="https://calciumm.straw.page/">STRAWPAGE</a>
+ </sub>
 </p>
 
 <p align="center">
