@@ -65,7 +65,7 @@ no dni just no kids (-18) ! i just block/hide if i have to. :)
 
 <p align="center">
 <sub>  
-<a href="https://calciumm.straw.page/">STRAWPAGE</a>
+<a href="https://calne-ca.straw.page/">STRAWPAGE</a>
  </sub>
 </p>
 
